@@ -1,1 +1,1 @@
-- 👋 Hi, I use this @aminHelkinz account for Helkinz
+- 👋 Hi, I use @aminHelkinz account for Helkinz repositories.
